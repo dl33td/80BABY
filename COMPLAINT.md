@@ -44,3 +44,5 @@ KADEN THOMAS, in his individual capacity,
 ADAM DRAKE, in his individual capacity;
 DOE 1 - 38, in their individual capacities,
         Defendants.
+
+Jury trial demanded.
